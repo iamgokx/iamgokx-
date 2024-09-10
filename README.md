@@ -1,4 +1,4 @@
-# iamgokx-# ðŸ’« About Me:
+#😄« About Me:
 âŒ¨ï¸ I'm currently working on a android app  SpotFix<br>ðŸ«‚ I'm looking to collaborate on Web development and android development<br>ðŸ¤ I need help with clean and effective coding practices<br>ðŸ‚ I'm currently learning Android development<br>ðŸ’¬ Ask me about coding<br>âš¡I love Procrastinating<br>
 
 
